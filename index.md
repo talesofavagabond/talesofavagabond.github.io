@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+This a digital journal because I don't want a physical one and my real ID has some rep.
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Don't try to find who I am.
